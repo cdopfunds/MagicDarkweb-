@@ -1,2 +1,2 @@
-# MagicDarkweb-
-fastest darkweb World 🌎
+ MagicDarkweb🌐
+fastest🛜darkweb Worldwide🌎🌎
